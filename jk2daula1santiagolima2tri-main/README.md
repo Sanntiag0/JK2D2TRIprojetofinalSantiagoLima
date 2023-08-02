@@ -1,1 +1,0 @@
-# jk2daula1santiagolima2tri
